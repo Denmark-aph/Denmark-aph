@@ -2,7 +2,7 @@
 <img width="480" height="640" alt="Без названия704_20260905132736" src="https://github.com/user-attachments/assets/d9512dec-3221-41b2-b940-286e350af5d9" />
 </p> 
 <p align="center">
-──────── <a href="https://rentry.co/englandno1fan">rentry</a> & <a href="https://englandaph.atabook.org/">sign ata</a> ────────
+──────── <a href="https://rentry.co/danmarkaph">rentry</a> & <a href="https://englandaph.atabook.org/">sign ata</a> ────────
 </p>
 
 <p align="center">
