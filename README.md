@@ -10,7 +10,7 @@
 </p>
 
 <p align="center">
-️️️️ $\color{#5F6849}{\text{────────}}$ <a href="https://rentry.co/danmarkaph">rentry</a> & <a href="https://englandaph.atabook.org/">sign ata</a>  $\color{#5F6849}{\text{────────}}$
+️️️️ $\color{#5F6849}{\text{────────}}$ <a href="https://rentry.co/dennoraph">rentry</a> & <a href="https://englandaph.atabook.org/">sign ata</a>  $\color{#5F6849}{\text{────────}}$
 </p>
 
 <p align="center">
